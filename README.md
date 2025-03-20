@@ -1,4 +1,4 @@
-# 👩🏻‍💻 João Paulo de Almeida
+# João Paulo de Almeida
 
 **`Engenheiro Biomédico`**
 
